@@ -1,3 +1,3 @@
-# Rajakar Chat
+# R#### Chat
 
-Welcome to Rajakar Chat!
+Welcome to R##### Chat!
